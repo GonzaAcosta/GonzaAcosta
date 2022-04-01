@@ -1,5 +1,5 @@
 # Hola, soy Gonzalo Acosta 👌
-## Estudio en la IMPA en 4°1°.
+## Estudio en la IMPA en 5°1°.
 
 ### Cuando logre terminarlo, me gustaría estudiar Ingeniero Electronico.
 
